@@ -1,2 +1,2 @@
 # muzik
-by: https://discord.gg/HMTHAqCTCz
+by: https://discord.gg/1951
